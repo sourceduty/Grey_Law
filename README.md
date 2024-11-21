@@ -3,7 +3,7 @@
 > National and international laws that contain intentional gaps or vague language that can be exploited and abused.
 #
 
-Grey law information is hidden and not presented upfront. These laws are intentionally written broadly to contain gaps or vague language that can be exploited and abused. Old grey haired lawyers inspired the "grey" terminology for these laws as they necitate an experienced lawyer.
+Grey law information is hidden and not presented upfront. These laws are intentionally written broadly to contain gaps or vague language that can be exploited and abused. Old grey haired lawyers inspired the "grey" terminology for these laws as they necessitate an experienced lawyer.
 
 #
 ### Actors, Politicians and Public Figures
