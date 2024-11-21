@@ -26,6 +26,8 @@ In conclusion, while the world of hacking is complex and multifaceted, it's esse
 #
 ### Grey Area Marketplaces & Activities
 
+![Cops](https://github.com/user-attachments/assets/6b878917-9290-47c2-a5ff-4e80788f2162)
+
 These are clandestine, illicit markets where illegal goods and services are bought and sold in person without the knowledge or consent of law enforcement agencies. They operate outside the confines of legal commerce and often involve criminal organizations involved in drug trafficking, human trafficking, arms dealing, stolen property sales, etc. The marketplaces can be temporary pop-up events or permanent locations like abandoned buildings, warehouses, or remote rural areas where transactions occur discreetly to avoid detection by authorities.
 
 These are also clandestine activities that take place outside the bounds of legal and societal norms. They often involve illegal acts such as drug use, prostitution, gambling, human trafficking, organized crime operations, etc. The practices can be conducted in secret locations or public places where participants attempt to conceal their illicit behavior from law enforcement agencies and members of the general public. These activities are typically carried out by individuals who seek anonymity and avoid detection while engaging in illegal acts that would otherwise result in criminal charges if discovered.
