@@ -8,6 +8,8 @@ Grey law information is hidden and not presented upfront. These laws are intenti
 #
 ### Actors, Politicians and Public Figures
 
+![Weeds](https://github.com/user-attachments/assets/821305d9-00a3-4e64-849a-8f9aeaa3317c)
+
 Actors, politicians, and businesses often take advantage of "grey areas" in the law to further their own interests or avoid consequences for unethical behavior. These individuals may exploit loopholes, ambiguity, or lack of clarity in legislation to engage in actions that are not explicitly illegal but still raise ethical concerns. By doing so, they can maintain a veneer of legitimacy while potentially harming others or undermining societal values.
 
 One example is when actors use their fame and influence to lobby for favorable treatment from law enforcement agencies or regulatory bodies. They may leverage connections with politicians or donate large sums of money to political campaigns in exchange for preferential treatment on issues such as traffic violations, tax evasion, or environmental regulations. Similarly, businesses might exploit grey areas in international trade agreements or intellectual property laws to engage in unfair competition practices, avoid paying taxes, or evade sanctions imposed by other countries.
