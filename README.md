@@ -44,6 +44,8 @@ These are also clandestine activities that take place outside the bounds of lega
 [Law Document](https://github.com/sourceduty/Law_Document)
 <br>
 [Law Regulation Maker](https://github.com/sourceduty/Law_Regulation_Maker)
+<br>
+[Tax Loophole](https://github.com/sourceduty/tax_loophole)
 
 ****
 🛈 This information is free and open-source; anyone can redistribute it and/or modify.
