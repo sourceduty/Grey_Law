@@ -17,7 +17,7 @@ One example is when actors use their fame and influence to lobby for favorable t
 In the realm of politics, politicians may take advantage of loose campaign finance regulations or lax enforcement of lobbying restrictions to amass wealth and power for themselves or their allies. They might accept large donations from special interest groups without disclosing the source of funds or engaging in quid pro quo arrangements that benefit donors at the expense of public interests. By exploiting these grey areas, they can maintain a facade of transparency while enriching themselves and undermining democratic principles. The consequences of such actions often include eroded trust in institutions, increased inequality, and diminished accountability among those who hold power.
 
 #
-### Modern Fake Faggots
+### Modern Fake Homosexuals
 
 ![Sex](https://github.com/user-attachments/assets/bac65bb5-a73d-4bd1-918c-5ad05af590f9)
 
