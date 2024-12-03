@@ -25,7 +25,7 @@ In ancient times, population growth was important because more people meant more
 
 Homosexuals change their natural voice tones, desires and sexual orientation. Weird, unnatural and modified social laws aren't made by fact or reasoning and change with popular demand.
 
-> "I tried to legally fight the current oppression of heterosexuality."
+> "*I tried to legally fight the current oppression of heterosexuality.*"
 
 #
 ### Underground Hacking
